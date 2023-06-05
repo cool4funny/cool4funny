@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @cool4funny
+- 👀 I’m interested in Code and lazy to change this
+- 📫 How to reach me discord dummy ofc here : Cool4funny#0466
